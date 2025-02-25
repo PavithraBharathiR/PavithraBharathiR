@@ -1,0 +1,7 @@
+-  👋 Hi, I’m @PavithraBharathiR
+- 👀 I’m a Data Enthusiast
+- 🌱 Learning new things is my hobby
+- 💞️ I’m looking to collaborate on projects here
+- 📫 How to reach me: @pavithrabharathi81@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: New technologies make me curious!
